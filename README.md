@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Hiimdum1
+- 👀 I’m interested in Scratch.mit.edu
+- 🌱 I’m currently learning Python 2DE
+- 💞️ I’m looking to collaborate never
+- 📫 How to reach me Twitter:lolzys.gt
